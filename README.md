@@ -1,7 +1,7 @@
 ## Hi there 👋
 Very quickly about me:
 - My name is Stella. She/Her pronouns
-- I'm 26 years old
+- I'm 27 years old
 - Come from the north of Norway (Vikings arrrgh)
 - Have multiple years in the IT-industry
 - 📫 Love talking to people. Feel free to ask me about things
